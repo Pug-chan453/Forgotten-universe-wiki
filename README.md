@@ -1,0 +1,2 @@
+# Forgotten-universe-wiki
+wiki
